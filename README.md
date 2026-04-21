@@ -1,2 +1,0 @@
-# Multisubject_Archetypal_Analysis
-# Multisubject_Archetypal_Analysis
